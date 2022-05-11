@@ -1,8 +1,11 @@
 👋 Hi, I’m Jacqui
 
 professional at financial derivatives📈 
+
 a full-stack developer🖥 
+
 a bilungual🗣🇺🇸🇨🇳 
+
 a Gen Z🧍🏻‍♀️
 
 👀 I’m interested in Defi, Blockchain, Cryptos, Web3
