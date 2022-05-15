@@ -4,7 +4,7 @@ professional at financial derivatives📈
 
 a full-stack developer🖥 
 
-a bilungual🗣🇺🇸🇨🇳 
+a bilingual🗣🇺🇸🇨🇳 
 
 a Gen Z🧍🏻‍♀️
 
