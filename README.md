@@ -9,4 +9,4 @@ a Purdue CS student 🔨🚂
 👀 I’m interested in Defi, Blockchain, Cryptos, Web3
 
 
-📫 How to reach me : jacqui@free-electron.org or  li4584@purdue.edu or jil659@g.harvard.edu
+📫 How to reach me : jacqui@free-electron.org or  li4584@purdue.edu
