@@ -1,12 +1,10 @@
 👋 Hi, I’m Jacqui
 
-a entry-level full-stack developer🖥 
+an entry-level full-stack developer🖥 
 
 a bilingual🗣🇺🇸🇨🇳 
 
 a Purdue CS student 🔨🚂
-
-a Gen Z🧍🏻‍♀️
 
 👀 I’m interested in Defi, Blockchain, Cryptos, Web3
 
