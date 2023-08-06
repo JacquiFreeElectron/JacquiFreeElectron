@@ -1,8 +1,6 @@
 👋 Hi, I’m Jacqui
 
-professional at financial derivatives📈 
-
-a full-stack developer🖥 
+a entry-level full-stack developer🖥 
 
 a bilingual🗣🇺🇸🇨🇳 
 
